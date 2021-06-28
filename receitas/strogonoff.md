@@ -10,6 +10,8 @@
 
 - 2 ovos
 
+- manteiga
+
 - outras coisas
 
   ### Modo de Preparo
