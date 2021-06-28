@@ -8,15 +8,17 @@
 
 - oleo
 
+- 2 ovos
+
 - outras coisas
 
   ### Modo de Preparo
 
-- Pegue uma panela, ponha tudo la
+- Pegue uma panela
 
-- mistura frango o creme e outras coisas
+- pegue os ingredientes
 
-- Deixa no fogo ate quase queimar
+- Peça encarecidamente para sua mulher fazer :laughing:
 
   
 
